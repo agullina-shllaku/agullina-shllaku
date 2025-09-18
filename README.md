@@ -14,7 +14,7 @@
 ---
 
 ## 🎿 Outside the Code  
-- Ski enthusiast 🏂 — used to race down slopes, chasing adrenaline and the perfect turn.  
+- Ski enthusiast, I used to race down slopes, chasing adrenaline and the perfect turn.  
 - Lover of fresh mountain air, powder days, and maybe the occasional hot chocolate afterward.  
 - Believer that a day without laughter (or a good ski run) is a day wasted.
 
